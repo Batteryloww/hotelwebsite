@@ -1,1 +1,1 @@
-https://batteryloww.github.io/hotelwebsite/
+https://itsmeanish13.github.io/hotelwebsite/
